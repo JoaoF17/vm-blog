@@ -20,7 +20,7 @@ Continuing our mission, the second workshop delved into sustainable entrepreneur
 
 Participating in Vegan Monkey's workshops opens doors to a wealth of benefits. Firstly, our workshops provide a unique platform for networking and connecting with like-minded individuals who share your passion for sustainability, health, and ethical entrepreneurship. Forge invaluable connections and collaborations that could fuel your personal and professional growth.
 
-![Networking Workshop](/images/blog2.1.jpeg)
+![Networking Workshop](/images/blog2.2.jpeg)
 
 Furthermore, these workshops offer a rich trove of knowledge acquisition. Learn from experts and industry leaders who bring real-world experience and insights to the table. Gain practical strategies, innovative ideas, and a deep understanding of how to align your values with your actions in all aspects of life.
 
